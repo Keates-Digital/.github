@@ -1,7 +1,6 @@
 ## Hi there 👋
 
 <!--
-
 **About us**
 
 🙋‍♀️ Introduction: Hello! We (well, mainly I) are a British organization that would soon become a hoping-to-be website design freelance company, which I, Leon Peter Keates, would be freelance web designing.
