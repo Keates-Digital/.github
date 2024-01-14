@@ -1,4 +1,4 @@
-## About Keates Digital | Est. 2023 (de facto); TBC (de jure)
+## About Keates Digital | Est. 2023 (unofficially)
 
 # 🙋‍♀️ Introduction: Hello! We (well, mainly I) are a British organization that would soon become a hoping-to-be website design freelance company, which I, Leon Peter Keates, would be freelance web designing.
 # 🌈 Contribution guidelines: This is mainly a draft, and is WIP (Work In Progress). For now, its pretty much private for now. No guidelines yet, but behave!
